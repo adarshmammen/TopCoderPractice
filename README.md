@@ -1,1 +1,1 @@
-Attempting to get the hang of Topcoder and possiby do really well
+Attempting to get the hang of Topcoder and possibly do really well.
